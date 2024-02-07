@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Abena-rash123
 - 👀 I’m interested learning and in making new friends.
 - 🌱 I’m currently learning AI career essentials.
-- 💞️ I’m looking to collaborate on everyone to achieve my aim and success 
+- 💞️ I’m looking to collaborate with  everyone to achieve my aim and success 
 - 📫 How to reach me. you cam reach me on 0243573186 or all social media platforms.
 - 😄 Pronouns: she,her.
 - ⚡ Fun fact: I have a great sense of humour 😄.
